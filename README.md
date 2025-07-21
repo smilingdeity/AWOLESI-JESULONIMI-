@@ -1,2 +1,2 @@
-# AWOLESI-JESULONIMI-
+# SMILING DEITY-
 A deity that smiles
